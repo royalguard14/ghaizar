@@ -1,1 +1,1 @@
-# ghaizar.github.io
+https://royalguard14.github.io/ghaizar/
